@@ -1,1 +1,1 @@
-# sourcesampmobile
+# sourcesampmobile สำหรับศึกษาเท่านั้นห้ามทำขาย หากพบเจอจะไม่แจกอะไรอีก
